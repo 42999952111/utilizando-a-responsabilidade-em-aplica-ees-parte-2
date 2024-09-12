@@ -1,0 +1,1 @@
+# utilizando-a-responsabilidade-em-aplica-ees-parte-2
